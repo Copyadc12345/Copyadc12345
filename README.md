@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Copyadc12345
+- 👀 I’m interested in social issues as well as in socially sience..
+- 🌱 I’m currently learning bachelor of law in mzumbe university mbeya campus college
+- 💞️ I’m looking to collaborate on social issues as well as in social sience...
+- 📫 you can  reach me vise no 0624135978 as both normal abd Whatsapp but in Facebook as copya adamson...
+- 😄 Pronouns: ...
+- ⚡ im rider in social issues..
+Copyadc12345/Copyadc12345 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes
